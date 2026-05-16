@@ -1,4 +1,4 @@
 ## 4zfn
 it's pronounced "four-synth"
 
-ask me shit: https://4zfn.atabook.org/
+ask me things: https://4zfn.atabook.org/
